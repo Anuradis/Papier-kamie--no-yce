@@ -1,2 +1,2 @@
-# Papier-kamie--no-yce
+# Papier-kamie--nozyce
 Papier-kamień-nożyce
